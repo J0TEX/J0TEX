@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Jota
+- 👀 I’m interested in cience, technology, economy, sports
+- 🌱 Living and learning
+- 💞️ I’m looking to collaborate on future projects
+- 📫 Reach me in discord: Jota#7711
